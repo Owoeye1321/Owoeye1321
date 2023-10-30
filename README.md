@@ -1,5 +1,5 @@
 ### Hi there 👋🌈
-Highly motivated and results-driven software engineer 🥳💥🙌🧑🏿‍💻 <br />
+I'm a highly motivated and results-driven software engineer 🥳💥🙌🧑🏿‍💻 <br />
 with a strong background in software development. Experienced in backend development🥷🏻☠️,<br />
 dedicated to optimizing server-side components for web applications.🕷🕷 <br />
 Committed to professional growth, I excel in teamwork, communication, and technical skills😎😎🥶🌈☠️😎.<br />
